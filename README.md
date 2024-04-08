@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @IzayoiNguyen
+-  I have to create an account cuz my visual code is stupid 
